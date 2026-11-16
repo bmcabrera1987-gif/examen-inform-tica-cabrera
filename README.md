@@ -1,1 +1,0 @@
-# examen-inform-tica-cabrera
